@@ -1,3 +1,3 @@
 # Jacky-chan
-My first repositoy stuff:-) 
+My first repositoy stuff :-) 
 Doramon!!!
